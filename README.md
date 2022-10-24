@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Onu-Nwigwe
+- 👀 I’m interested in Human Resource Management, Digital desigs and Cryptocurrencies.
+- 🌱 I’m currently learning Human Resource Management, product and project management and digital designs.
+- 💞️ I’m looking to collaborate on agency creation and  my own talk show.
+- 📫 How to reach me ifunanyae46@gmail.com 
